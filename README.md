@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **JavaScript**
 
-- 📫 Reach me at **soumyadridas@yahoo.com**
+- 📫 Reach me at **soumyadri30@gmail.com**
 
 - ⚡ Fun fact **I love to play Football**
 
